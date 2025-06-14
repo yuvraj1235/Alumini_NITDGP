@@ -1,1 +1,1 @@
-# Alumini_NITDGP
+# Alumni_NITDGP
